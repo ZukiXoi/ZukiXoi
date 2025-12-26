@@ -5,7 +5,8 @@
 __Welcome to my Github__
 
 
->I am  a very kind and understendig person i want to think so im very open to talk with people 
+>I am  a very kind and understandig person
+>i want to think **so im very open to talk with people*
 
 
 
