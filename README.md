@@ -5,8 +5,9 @@
 __Welcome to my Github__
 
 
->I am  a very kind and understandig person
->i want to think *so im very open to talk with people* <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/cc189e1e-6972-4060-9ae6-c8e71b7d8d89" />
+I am  a very kind and understandig person
+>i want to think *so im very open to talk with people*
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/cc189e1e-6972-4060-9ae6-c8e71b7d8d89" />
 
 
 
