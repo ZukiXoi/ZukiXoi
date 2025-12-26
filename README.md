@@ -50,6 +50,12 @@ I am  a very kind and understandig person
   </tr>
 </table>
 
+
+[MY RENTRY](https://rentry.co/ZukisPlace)
+
+
+[MY ATTA](https://zukixoi.atabook.org)
+
 <table border=0>
   <tr>
     <td valign="middle">
